@@ -1,1 +1,1 @@
-# finalexam
+# This class was a total challenge for me, even though I knew how to do some things, the way in which we did it was totally new for me, so this was a challenge because I needed to learn this new way to do things, I really enjoyed the class because I learnt new ways to do things and learn new things too.
